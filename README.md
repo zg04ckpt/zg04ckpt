@@ -1,0 +1,6 @@
+- ZG04 is my nickname
+- I'm newbier and i'm learning Java
+- contact with me : 
+-   + facebook : https://www.facebook.com/nguyenhc424/
+-   + zalo : 0375985850
+-   + discord : zg04#2873
